@@ -1,1 +1,1 @@
-OLá eu sou Eng. Civil Fernando Moraes e estou em transição de carreira para o desenvolvimento WEB. Meu objetivo é produzir soluções digitais para outros engenheiros e demais agentes envolvimentos na engenharia. 👍😊
+OLá, eu sou Eng. Civil Fernando Moraes e estou em transição de carreira para o desenvolvimento WEB. Meu objetivo é produzir soluções digitais para outros engenheiros e demais agentes envolvimentos na engenharia. 👍😊
